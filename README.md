@@ -63,3 +63,4 @@ You just need to see clearly—
 **and then choose what you want to do next.**
 
 ---
+《多数人的困境：被分化的我们》全本.pdf
